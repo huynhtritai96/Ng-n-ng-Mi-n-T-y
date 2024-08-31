@@ -182,4 +182,9 @@ Dưới đây là bảng tổng hợp các từ miền Tây đồng nghĩa với
 - **um**: rậm rạp, dầy đặc - Vườn này um quá, khó đi.
 - **hét um nhà = thối um = um**: hét um trời - Nó hét um nhà làm ai cũng nghe. 
 
-Danh sách này đã bao quát tất cả các từ và ví dụ, đảm bảo không bỏ sót từ nào và giữ nguyên cấu trúc yêu cầu.
+Reference: 
+Tiếng việt: https://vi.wiktionary.org/wiki/Th%E1%BB%83_lo%E1%BA%A1i:M%E1%BB%A5c_t%E1%BB%AB_ti%E1%BA%BFng_Vi%E1%BB%87t
+khẩu ngữ: https://vi.wiktionary.org/wiki/Th%E1%BB%83_lo%E1%BA%A1i:Kh%E1%BA%A9u_ng%E1%BB%AF
+Thán từ: https://vi.wiktionary.org/wiki/Th%E1%BB%83_lo%E1%BA%A1i:Th%C3%A1n_t%E1%BB%AB_ti%E1%BA%BFng_Vi%E1%BB%87t
+
+https://www.thegioitihon.com.vn/blogs/news/260-tu-ngu-thong-dung-cua-dan-sai-gon-va-nguoi-mien-nam
