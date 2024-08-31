@@ -1,4 +1,4 @@
-# Ngôn ngữ miền tây
+# Phương ngữ Miền Tây
 
 Dưới đây là bảng tổng hợp các từ miền Tây đồng nghĩa với từ tiếng Việt phổ thông cùng với ví dụ sử dụng:
 
