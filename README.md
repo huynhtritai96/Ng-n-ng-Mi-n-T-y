@@ -1,5 +1,8 @@
 # Phương ngữ Miền Tây
-
+New:
+- Chắc Cà Đao, Mặc Cần Dưng, Xếp Bà Lý, Hóc Bà Tó: Vùng đất xa xôi, hẻo lánh không biết ở đâu
+- Cùm Chưn, Cùm tay: còng chân, còng tay:  con tôm to bằng cùm chưn khum?
+- 
 Dưới đây là bảng tổng hợp các từ miền Tây đồng nghĩa với từ tiếng Việt phổ thông cùng với ví dụ sử dụng:
 
 | Từ Miền Tây                              | Từ Tiếng Việt Phổ Thông                      | Ví dụ cách dùng từ miền Tây                    |
