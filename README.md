@@ -5,6 +5,8 @@
 
 **New Reference:** 
 
+https://vi.wiktionary.org/w/index.php?title=Th%E1%BB%83_lo%E1%BA%A1i:Th%C3%A0nh_ng%E1%BB%AF&pagefrom=qu%E1%BB%91c+s%E1%BA%AFc+thi%C3%AAn+h%C6%B0%C6%A1ng%0Aqu%E1%BB%91c+s%E1%BA%AFc+thi%C3%AAn+h%C6%B0%C6%A1ng#mw-pages
+
 [www.thegioitihon.com.vn](https://www.thegioitihon.com.vn/blogs/news/260-tu-ngu-thong-dung-cua-dan-sai-gon-va-nguoi-mien-nam#:~:text=H%E1%BA%BFt%20tr%C6%A1n%20h%E1%BA%BFt%20tr%E1%BB%8Di%20%3D%20ch%E1%BA%B3ng,(h%E1%BA%BFt%20tr%E1%BB%8Di)%20%C3%A1!%20)
 
 Dưới đây là bảng tổng hợp các từ miền Tây đồng nghĩa với từ tiếng Việt phổ thông cùng với ví dụ sử dụng:
